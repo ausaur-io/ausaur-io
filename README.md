@@ -9,3 +9,5 @@
 
 "童話都是騙人的，唯有技術同定力係真嘅。" 
 - Austin @ ausaur-io
+- **Guitar Status**: 聯絡緊 Sigma DR-28V 賣家，目前 Pending。唔強求，緣份到自然會出現。
+- **Mindset**: 保持理性，唔會因為少少阻礙就斷咗 GitHub Streak。
